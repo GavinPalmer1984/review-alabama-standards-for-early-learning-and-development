@@ -1,4 +1,10 @@
-# Cultural Context (page 9)
+# Introduction
+
+I am in the process of reviewing Alabama's 2020 standards for early learning and development.
+
+Feel free to begin a conversation via pull request or you can reach me at GavinPalmer19894 @ gmail.com.
+
+## Cultural Context (page 9)
 
 ```
 Children learn in the context of their unique heritage and family culture and values.
