@@ -43,3 +43,18 @@ experiences and environment to best meet their needs and maximize learning
 ```
 
 I find that behind every strength is at least one weakness and behind every weakness is at least one strength.  This kind of awareness can help each individual to become more aware of their own strengths and weaknesses and other people's strengths and weaknesses.  This kind of awareness allows us to see our weaknesses in a better light.  I only mention this because the authors seem to deliberately avoid using the word "weak" or "weakness".  This avoidance of the word and the reality of the situation is not helpful.
+
+```
+Alabama’s young children with disabilities are best supported in inclusive environments that
+ensure that all children have equal opportunities to participate in early learning programs. The
+2015 Position Statement issued by the U.S. Departments of Education and Health and Human
+Services defines inclusion, “children with disabilities in early childhood programs, together
+with their peers without disabilities; holding high expectations and intentionally promoting
+participation in all learning and social activities, facilitated by individualized accommodations;
+and using evidence-based services and supports to foster their development (cognitive,
+language, communication, physical, behavioral, and social-emotional) , friendships with peers,
+and sense of belonging. This applies to all young children with disabilities, from those with the
+mildest disabilities, to those with the most significant disabilities.”
+```
+
+My biggest concern with this strategy is that children without disabilites or with hidden disabilites are receiving less attention.  The people who are most capable of helping or hurting society deserve just as much attention if not more attention than those who are with disabilites.
