@@ -1,8 +1,8 @@
 # Introduction
 
-I am in the process of reviewing Alabama's 2020 standards for early learning and development.
+I am in the process of reviewing [Alabama's 2020 standards for early learning and development](https://github.com/GavinPalmer1984/review-alabama-standards-for-early-learning-and-development/blob/master/pdfs/LL_DECE_Standards_FullDraft9.pdf).
 
-Feel free to begin a conversation via pull request or you can reach me at GavinPalmer19894 @ gmail.com.
+Feel free to begin a conversation via pull request or you can reach me at `GavinPalmer1984 @ gmail.com`.
 
 ## Cultural Context (page 9)
 
