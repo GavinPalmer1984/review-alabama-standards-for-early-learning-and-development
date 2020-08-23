@@ -62,3 +62,35 @@ mildest disabilities, to those with the most significant disabilities.”
 ```
 
 My biggest concern with this strategy is that children without disabilites or with hidden disabilites are receiving less attention.  The people who are most capable of helping or hurting society deserve just as much attention if not more attention than those who are with disabilites.
+
+## (page 28)
+
+```
+Children will build a sense of belonging to a group and follow its rules.
+```
+
+I am reminded of three experiments which I heard mentioned recently by Eric Weinstein in Episode 40 of The Portal podcast.  They are the Milgram Experiment, Asch Conformity Experiment, and the Zimbardo Prison Experiment.  Children should not be taught to obey rules.  There are always better rules.  Children should be asked what they think about the rules.  Children should be taught to understand why the rule exists.  Children should be taught to be skeptical of groups and people who feel like they belong to a group and follow its rules.  Children should be made aware of rules which exist so that they can better understand the insanity of humans and the possible consequences of their actions in this insane world.
+
+
+```
+Children will understand about supply and demand, why people work, money, and
+community helpers.
+```
+
+I am very curious what they plan to teach about community helpers.  I want to teach my children that they can always talk to me and ask me for help.  But I also want to teach my children to function well without help.  I want to teach my children to try and figure it out for themselves if possible.  Many of our community helpers exist only because children never learned to be adults who can function independently.  There is a risk that community helpers become enablers who are not actually helping people become independently functional adults.  I want my children to be very careful about words being used in dishonest ways.  For example many of our law enforcers, teachers, and soldiers are not actually community helpers although they may be called community helpers.
+
+```
+Children will demonstrate understanding of events and people from the past and
+present.
+```
+
+I worry very much about the stories which are being told.  I want my children to know that they are never told the whole story, and we should be very careful about making judgments about events and people.  I want my children to be very cautious of people who make judgements about events and people.
+
+## (page 33)
+
+```
+ Traditions, language, culture, values, and beliefs are part of children’s identity and
+influence their thinking and learning. 
+```
+
+Some beliefs are not healthy.  People who have accepted a culture of ignorance, theft, violence, obedience, and conformity are abusive.  I don't want my young children interacting with other children are being abused.  I don't want my young children being taught by teachers who have accepted an abusive culture.  Diversity is not a great thing when abuse is happening.
